@@ -1,1 +1,1 @@
-readme dirctory
+this is only time 
